@@ -4,17 +4,17 @@
 
 A bright red car was stuck in traffic. A heavy traffic that is best described as a jam. Neave was driving the bright red car, stuck somewhere in the middle of the long queue. Her hands were clenched on the wheel and her teeth were grinding. The reason for her agitation was sat in the passenger seat. Matt was curled round in his seat, arm stretched toward the radio dial. He gave it an imprecise twist and the music changed jarringly; from electro house to classical. Neave’s hands tightened on the wheel. The swooning and keening of the classical music felt like a knife inside of her head. Being constantly vigilant for the traffic to move combined with the thrum of the car’s engine had given her a headache, and now this wasn’t helping. Matt was swaying his head to the orchestral sound. Neave could tell he wasn’t really feeling it and suspected he would change the station before long. She began a silent prayer that he would leave it alone, or better yet turn it off. Unfortunately after a couple more notes Matt’s hand began to search out the radio dial once more. With a casual spin the sombre tones were switched to the needling voice of an over enthusiastic reporter. Neave screwed up her face and turned to the window on her right. She had an urge to be outside on the pavement with the other pedestrians, walking in the cool fresh air, the rumble of the traffic only an annoyance rather than an oppressive pressure. She closed her eyes trying to savour the daydream, avoiding the reality. Twist. The latest pop poured out, unapologetically mundane. She sighed, she was stuck in the car with Matt’s aimless flitting between stations. Twist. Rock anthems blared out angry and emotive, pounding against Neave’s head. Twist. A sickly, curdling nursery rhyme oozed out of the speaker. Twist. An ancient audio drama wheezed away. Twi-                                                                                                 
 <Br>
-“Would you stop doing that!” Neave’s yell interrupted the clacking of the dial. Matt looked up at her with bewilderment, which Neave found infuriating.
+“Would you stop doing that!” Neave’s yell interrupted the clacking of the dial. Matt looked up at her with bewilderment, which Neave found infuriating.              
 <Br>
-“Stop what?” He asked with genuine confusion. 
+“Stop what?” He asked with genuine confusion.                                                                                                                         
 <Br>
-“That! Flitting through the radio, it. Is. Maddening..” 
+“That! Flitting through the radio, it. Is. Maddening..”                                                                                                                        
 <Br>
-“I’m just trying to find something interesting to listen to.”
+“I’m just trying to find something interesting to listen to.”                                                                                                                 
 <Br>
-“Well don’t okay, you keep changing it and I can’t focus on driving.”
+“Well don’t okay, you keep changing it and I can’t focus on driving.”                                                                                                         
 <Br>
-Matt looked out the front windscreen at the motionless car less than five inches in front of them. “We’re not going anywhere,” he started reaching for the dial again, “might as well find something good to listen to.” 
+Matt looked out the front windscreen at the motionless car less than five inches in front of them. “We’re not going anywhere,” he started reaching for the dial again, “might as well find something good to listen to.”                                                                                                             
 <Br>
 Neave slapped his hand down, “you already found something good to listen to five bloody…” she flicked her left hand frantically, mockingly mimicking Matt twisting the dial, blowing air through her teeth harshly, “…ago!” She turned away from Matt to focus on the road ahead. There was still a car blocking her path. She continued in a quieter, less aggressive tone. “Please, I’m stuck in here with you and I could really do without the mindless noise okay.” At that moment Neave felt the weight of being trapped with Matt, she realised she’d been carrying it around with her for a while.
 <Br>
